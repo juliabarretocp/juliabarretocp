@@ -1,3 +1,3 @@
-### Olá! Seja bem-vindo ao meu perfil 🖐️
+### Olá! Seja bem-vindo(a) ao meu perfil 🖐️
 
 
